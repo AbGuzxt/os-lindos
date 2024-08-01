@@ -1,2 +1,1 @@
-# os-lindos
-os mais lindos da escola
+### boas vindas ao meu perfil 💙
